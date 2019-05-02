@@ -1,12 +1,12 @@
 # talk-mj-2019
-NOAA Monster Jam talk
-
+NOAA Monster Jam Seminar    
+May 2, 2019   
 
 
 INTERGENERATIONAL CARRYOVER EFFECTS IN SHELLFISH AND THE CONSIDERATION OF A ROLE FOR DNA METHYLATION
 
 
-SLIDEDECK (HQ): https://d.pr/f/Ibn7Ob
+SLIDEDECK (HQ): https://d.pr/f/UXD5Ij
 
 
 Bio     
